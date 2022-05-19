@@ -1,0 +1,1 @@
+# andmebaasi_paringute_ulesanded
